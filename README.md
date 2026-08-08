@@ -12,3 +12,6 @@
 ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀Ryland Grace copinglink(?) ⠀ ⠀ ⠀<img width="50" height="60" alt="IMG_0545" src="https://github.com/user-attachments/assets/a9d22b14-2df2-4d15-9e3e-a2777d23c80a" />
 ⠀ ⠀ ⠀⠀⠀⠀I <3 my pony town party
 
+ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀<img width="120" height="60" alt="IMG_0571" src="https://github.com/user-attachments/assets/eab5a5ff-3d2c-49a0-9d4d-e94556e26622" />⠀ ⠀  ⠀ ⠀ ⠀⠀ <img width="120" height="60" alt="IMG_0568" src="https://github.com/user-attachments/assets/29fcb916-de72-41c4-be15-135ef8973ce9" />⠀ ⠀  ⠀ ⠀ ⠀⠀<img width="120" height="60" alt="IMG_0569" src="https://github.com/user-attachments/assets/a3d92075-1990-4e45-bff7-62f353d371dd" />
+
+
