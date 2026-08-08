@@ -7,7 +7,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀[⠀ata⠀](https://freakyembalmer.atabook.org/)⠀ ⠀ ⠀[⠀prns⠀](https://pronouns.cc/@drfreakshow)⠀ ⠀ ⠀⠀[straw](https://phmgrace.straw.page/)
 
-⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ <img width="200" height="25" alt="IMG_0553" src="https://github.com/user-attachments/assets/8ba3ad27-a8e5-4a76-9920-0de06f12324f" /> <img width="200" height="25" alt="IMG_0562" src="https://github.com/user-attachments/assets/33c9514e-2030-4405-8351-66a870cf4a11" /> <img width="200" height="25" alt="IMG_0554" src="https://github.com/user-attachments/assets/f18192e5-5b61-4f13-bd27-5911c49633e4" /> <img width="200" height="25" alt="IMG_0555" src="https://github.com/user-attachments/assets/228ed3e8-e058-4050-81e4-abbefe0bdf1d" />
+⠀⠀ ⠀⠀ <img width="200" height="25" alt="IMG_0553" src="https://github.com/user-attachments/assets/8ba3ad27-a8e5-4a76-9920-0de06f12324f" /> <img width="200" height="25" alt="IMG_0562" src="https://github.com/user-attachments/assets/33c9514e-2030-4405-8351-66a870cf4a11" /> <img width="200" height="25" alt="IMG_0554" src="https://github.com/user-attachments/assets/f18192e5-5b61-4f13-bd27-5911c49633e4" /> <img width="200" height="25" alt="IMG_0555" src="https://github.com/user-attachments/assets/228ed3e8-e058-4050-81e4-abbefe0bdf1d" />
 
 
 
